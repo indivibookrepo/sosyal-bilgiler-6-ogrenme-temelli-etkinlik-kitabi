@@ -1,0 +1,1 @@
+# sosyal-bilgiler-6-ogrenme-temelli-etkinlik-kitabi
